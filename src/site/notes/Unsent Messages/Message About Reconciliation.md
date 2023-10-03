@@ -17,5 +17,3 @@
 
 > [!seealso] 
 > I deeply regret how our relationship ended and I want to acknowledge that it wasn't what either of us desired. Since that time, I've devoted myself to personal growth and self-improvement. While I understand that it can never fully compensate for what occurred, I want you to know that I still carry hope in my heart for a future where we can reunite as a family. I love you, and I'm truly sorry.
-
-#notes
